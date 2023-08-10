@@ -1,3 +1,0 @@
-# House of Greenland
-
-> TBC
